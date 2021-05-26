@@ -1,0 +1,2 @@
+- Hi, I’m @kf-ng
+- I just signed up to Git
