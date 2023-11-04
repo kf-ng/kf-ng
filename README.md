@@ -1,2 +1,2 @@
 # About me
-A paradin of landscape.
+A wanderer of the physical and metaphysical world.
