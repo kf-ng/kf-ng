@@ -1,2 +1,2 @@
 # About me
-A wanderer of the physical and metaphysical world.
+A sole wanderer lost in this world 
