@@ -1,2 +1,2 @@
 # About me
-A sole wanderer lost in this world 
+Just a nobody.
